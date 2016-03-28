@@ -1,3 +1,4 @@
 Laurent MAXIMIN
 Jordan MARTINS
 Aurèle CHRIST
+Nina PELLAN
