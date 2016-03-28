@@ -1,2 +1,3 @@
 Laurent MAXIMIN
 Jordan MARTINS
+Aurèle CHRIST
