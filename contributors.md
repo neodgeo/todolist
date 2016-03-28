@@ -1,1 +1,2 @@
 Laurent MAXIMIN
+Aurèle CHRIST
