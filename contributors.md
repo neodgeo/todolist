@@ -1,2 +1,1 @@
 Laurent MAXIMIN
-Aurele CHRIST
